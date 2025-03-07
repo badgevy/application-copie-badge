@@ -1,1 +1,0 @@
-# application-copie-badge
